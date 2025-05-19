@@ -1,1 +1,1 @@
-# kypcovaya
+# diplomnaya
